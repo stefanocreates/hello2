@@ -1,1 +1,2 @@
-![bianconiglio](https://github.com/user-attachments/assets/35731ca9-f370-4694-910a-f7d0e3645379)
+
+![Safeimagekit-crop-image-to-256x256 (1)](https://github.com/user-attachments/assets/8396fc53-a588-4b4e-baf4-f23d737a882c)
